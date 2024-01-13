@@ -4,7 +4,7 @@ Also i had a original channel formely called "Nendento" Da original channel was 
 cease and desist letter from Nintendo of America Inc. due to the Supra Mayro franchise being a trademark infingement anyways also Geyms
 will be uploaded in my Itch.io and GitHub, Github is only where i'll upload leak builds of my geims. Enjoy and Have Fun...
 
-Daylan Davis (CEO of Niudento)
+- Daylan Davis (CEO of Niudento)
 
 <!---
 Niudento6983/Niudento6983 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
